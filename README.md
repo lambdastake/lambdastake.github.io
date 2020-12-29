@@ -1,3 +1,2 @@
-## Lambdastake Website
+## Coming Soon...Watch this Space!
 
-Pool Website - [https://lambdastake.com](https://lambdastake.com) 
